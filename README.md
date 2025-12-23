@@ -6,9 +6,6 @@
 📧 Email: hraza4941@gmail.com  
 📞 Phone: +92 327 0502833  
 
-🔗 Google Scholar: https://scholar.google.com/citations?user=BvQVad4AAAAJ&hl=en  
-🏆 World’s Top 2% Scientist (Stanford University Ranking)  
-DOI: https://doi.org/10.17632/btchxktzyw.8  
 
 ---
 
